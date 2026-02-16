@@ -1,6 +1,6 @@
 # econom
 эконометрика 2мэо1
 
-Если используете мой код купите мне попить
+brutally frame mogged
 
 https://steamcommunity.com/profiles/76561198443410182/
